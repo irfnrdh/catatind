@@ -30,4 +30,4 @@ Orang tua mendidik sesuai dengan kepribadiannya yang memiliki temprament yang be
 # Pertanyaan:
 Ustad apakah ada "rekomendasi buku-buku" yang bisa orang tua baca dalam mendidik anaknya dari Ustad? 
 
-Mirror ()
+Mirror (https://s.id/-19oQT)
